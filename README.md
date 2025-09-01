@@ -1,2 +1,2 @@
 # Hard_Soft_Skills
-Infográfico Hard
+Infográfico Hard e Soft Skills
